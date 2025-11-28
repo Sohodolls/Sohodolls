@@ -1,12 +1,21 @@
-![](https://media.discordapp.net/attachments/1370686515381796959/1439275668285292596/image_7.png?ex=6919ed6b&is=69189beb&hm=b39b8f5a4397938493b09bf4db2acc69460ca3ca03c8661c87a0bfe051fd0fe3&=&format=webp&quality=lossless)
-ㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&color=CF609B&center=true&width=435&lines=%3E+I+wanna+die+with+you+x_x)](https://git.io/typing-svg)
+![](https://files.catbox.moe/gw7t8v.png)
+ㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=sohodolls&color=CF609B&label=♡)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=sohodolls&color=f27416&label=♡)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/lac4ql.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/1boe4q.png)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[![atabook](https://files.catbox.moe/ohtfo3.png)](https://savior.atabook.org) [![rentry](https://files.catbox.moe/4io8a2.png)](https://rentry.co/8-bitheart)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1370686515381796959/1439275667240915045/image_9.png?ex=6919ed6b&is=69189beb&hm=e51a256a3b929ce58984dfad11fd14d9a9019695d938dea4a0c45d5e42fe1024&=&format=webp&quality=lossless&width=423&height=457)
 
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ 
-
+![](https://files.catbox.moe/cfoyy0.png)
